@@ -54,3 +54,76 @@ detailed schematic colorful airbrushed drawing of titan space ships Hieronymus B
 
 ![0_3](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/4281917c-d89c-4c11-8762-a7c77e8fe071)
 
+# World 6:
+
+detailed schematic colorful airbrushed drawing of titan space ships Hieronymus Bosch millions of animals and creatures. Drawn black fine Micron, Mazes everywhere ship greeble, muscle robots holding Anastasiya kvitko jewel shells marblesque gleaming gems, high detail, intricate detail, 8k, glistening firey sunset, science fiction cover popular science
+
+https://skybox.blockadelabs.com/3a2df89966f9ffa0d9122e50e7a51f86
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/30d6a845-7886-4a44-95cc-12a058b33452)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/d6c9dc3f-dd12-4742-8528-83e61c35aef5)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/26f63938-e5bd-4973-a8ef-2eacdf3f6ced)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/25d84ec7-3931-405d-bd5c-faa4f14bbbf9)
+
+---
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/7650134e-b229-4204-a760-a1e3ba89b314)
+
+https://skybox.blockadelabs.com/40e4a2600b695524c800f6417baba341
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/b2727ecb-86cb-49d8-a4c8-39503b59dd60)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/acabf21c-8b41-4e05-accc-8ab752b7d48a)
+
+Hieronymus Bosch millions of animals and creatures.  Micron, Mazes greeble, muscle robots holding Anastasiya kvitko jewel shells marblesque gleaming gems, high detail, intricate detail, 8k, glistening firey sunset, science fiction cover popular science
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/a7871a42-d67d-43c6-baf1-66201f1b60c5)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/b2e8aa54-cf51-42ac-8bb0-27087787ac0f)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/ec76bfce-695d-4321-a986-6421a64b2897)
+
+https://skybox.blockadelabs.com/4c53e81d44989b119dcb63e383cc1303
+
+https://skybox.blockadelabs.com/fc970ba87dfa37d17bb025c30258289e
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/653d76c9-ebba-4213-8aa5-4896ffe4d3a5)
+
+Hieronymus Bosch millions of animals and creatures. Micron, Mazes greeble, muscle robots holding Anastasiya kvitko jewel shells marblesque gleaming gems, high detail, intricate detail, 8k, glistening firey sunset, science fiction cover popular science
+
+# Oil Painting
+
+https://skybox.blockadelabs.com/ff26fff034c813de179686029c60d988
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/b5ea2a5f-4c62-4933-959e-c3c58fb783f9)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/3c151ba3-bbc4-480b-8669-e2354b48da95)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/aa5e8b4e-2907-42ac-ae25-7d24064a6563)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/63ad0dfa-bb2c-4082-8be3-ec2028833e7b)
+
+
+https://skybox.blockadelabs.com/0bfd8955b323a6f144d58f8979680d73
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/a4d3f563-c4ea-46c2-ad29-536db97b7113)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/bb106962-84a6-450d-9ed8-cf0e8fb64544)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/8839ace0-eb9e-4cdd-9e4d-64b0f6338203)
+
+Hieronymus Bosch millions of animals and creatures. Micron, Mazes greeble, muscle robots holding Anastasiya kvitko jewel shells marblesque gleaming gems, high detail, intricate detail, 8k, glistening firey sunset, science fiction cover popular science
+
+https://skybox.blockadelabs.com/f4225f9ac62202ead8b62a272092c92b
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/89955c12-108a-4c6d-8248-43d2cfb810b3)
+
+![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/edcfe245-6db2-41e5-bf24-4edca6fcbf29)
+
+
+
+
+
