@@ -16,5 +16,13 @@ Screenshots - 4 Directions of new virtual environment
 ![image](https://github.com/AaronCWacker/VirtualEnvironments/assets/30595158/9e40d2b6-faad-47d2-812b-5c1704ac5e86)
 
 
+World 2:
+
+https://skybox.blockadelabs.com/8dec2917dbed0a38076483b1c62512f0
+
+World 3:
+
+A detailed schematic drawing of titan space ship world ship of galaxies and millions of animals and creatures. Drawn using black fine Micron, Mazes everywhere as space ship greeble maze drawing, muscle robots holding Anastasiya kvitko sorceress jewel shells marblesque gleaming gemstones, high detail, intricate detail, 8k, stylish glistening firey sunset, science fiction cover popular science --v 5.2 --ar 5120:1440 --q 5
+
 
 
